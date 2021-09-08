@@ -1,2 +1,0 @@
-# SternWywiol
- Stern Wywiol projecty
